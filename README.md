@@ -2,7 +2,7 @@
 
 ❤️I'm interested in Animation and softwares
 
-📚I'm currently learning CO - Diploma
+📚I'm currently learning Computer Diploma
 
 ✉️ To reach me mail on: durveshpradhan2002@gmail.com
 
