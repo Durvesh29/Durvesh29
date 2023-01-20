@@ -2,7 +2,7 @@
 
 ❤️I'm interested in Animation and softwares
 
-📚I'm currently learning Computer Diploma
+📚I have completed my diploma in computer and i am currently studing in Btech cs
 
 ✉️ To reach me mail on: durveshpradhan2002@gmail.com
 
